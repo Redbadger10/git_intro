@@ -1,2 +1,1 @@
 Bradley Rule
-9
